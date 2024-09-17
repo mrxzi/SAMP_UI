@@ -1,3 +1,2 @@
 TAMPILAN GARASI
-https://ibb.co.com/XFdGmMY
-![Uploading image.png…]()
+![Uploading Screenshot 2024-09-17 185106.png…]()
